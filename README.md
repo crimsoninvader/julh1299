@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @julh1299
-- 👀 I’m interested in biostatistics / statistics / mathetmatics
+- 👀 I’m interested in biostatistics / statistics / mathematics
 - 📫reddit: crimson_invader || twitter: @crimson_invader 
 
 <!---
